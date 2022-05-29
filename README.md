@@ -1,1 +1,1 @@
-# gta-5-pakai-stick
+# Cara Setting Game GTA 5 Pakai Joystick 
